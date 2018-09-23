@@ -1,1 +1,1 @@
-![ciclocangrejo's avatar] ("https://github.com/CangrejoDeneb/prueba/commit/72d88a6a9a5b9caf58f6df458f35024fdbc31975")
+![ciclocangrejo's avatar] ("https://pbs.twimg.com/profile_images/1687602122/twittercangrejo_400x400.jpg")
